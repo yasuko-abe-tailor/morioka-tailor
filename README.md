@@ -1,2 +1,0 @@
-# morioka-tailor
-# morioka-tailor
